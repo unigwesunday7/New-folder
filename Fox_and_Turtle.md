@@ -29,3 +29,9 @@ Feeling Ashamed, **Blaze** slowed down and waited for __Turbo__ to catch up. Whe
 
 ---
 
+## CHAPTER 5
+
+From that day on, **Blaze** and **Turbo** were inseperable. There would race each other through the forest, but now there did it for fun, taking turns leading the way and showing each other the beauty of the forest. __Blaze__ learnt that true friendship was more important than winning and that true speed was not measured by how quickly one can run, but by how much they can appreciate the journey.
+
+
+_THE END._
