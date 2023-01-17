@@ -22,3 +22,10 @@ But as the race continues, __Blaze__ began to realize that there was more to lif
 
 ---
 
+## CHAPTER 4
+
+Feeling Ashamed, **Blaze** slowed down and waited for __Turbo__ to catch up. When __Turbo__ finally reached **Blaze,** **Blaze** appologized for his arrogance and asked Turbo to be his friend.
+
+
+---
+
